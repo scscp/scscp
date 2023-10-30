@@ -24,8 +24,8 @@
 
 
 ```
-🟥 YouTube: Arh-Project 
-🟦 Grup Telegram: https://t.me/R1f4n_1122
+🟥 whatsapp: wa.me//6281573872702 
+🟦 Grup Telegram: https://t.me/CandraVpnz
 ```
 
 [![My Skills](https://skillicons.dev/icons?i=java,linux,js,html,css,python,php,bash,azure,docker,gcp)](https://skillicons.dev)
